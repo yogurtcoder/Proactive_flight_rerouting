@@ -2,7 +2,7 @@
 
 **Author:** William Zhou — Plano West Senior High School  
 **Mentor:** Independent Research (Science Fair, Dallas Regional / ISEF Track)  
-**Status:** Active — Publication under revision at *National High School Journal of Science*
+
 
 ---
 
